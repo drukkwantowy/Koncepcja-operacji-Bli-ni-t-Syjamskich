@@ -1,1 +1,1 @@
-# Koncepcja-operacji-Bli-ni-t-Syjamskich
+# Koncepcja-operacji-Bliźniąt-Syjamskich
